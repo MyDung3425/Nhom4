@@ -1,2 +1,0 @@
-# Nhom4
-BÁO CÁO CUỐI KÌ CSDL - NHÓM 4
